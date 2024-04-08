@@ -1,1 +1,2 @@
 Frank Cummings
+cummingf@oregonstate.edu
